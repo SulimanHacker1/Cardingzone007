@@ -1,5 +1,5 @@
 # Carding Complete Guideline
-[![IMAGE ALT TEXT HERE](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhEaqwnD99jA2QOBc4aoMNvmneFiV98odL71J0pKMS65K6NemMZSeN4Oa2dFbO9bvt8QRjWaVXCCnSTIZHJ7-nnsqYKQ1FtPdJoTp2QLzKvwnGh3T1Lj7lH8QFElqJtD6jZUwmwcm7oFDDUHg37uTPPYGHvzxu2b1OeWMqliMdYZV7vvE5178401tBSPg/s320/Your%20paragraph%20text.png)]
+[![IMAGE ALT TEXT HERE](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhEaqwnD99jA2QOBc4aoMNvmneFiV98odL71J0pKMS65K6NemMZSeN4Oa2dFbO9bvt8QRjWaVXCCnSTIZHJ7-nnsqYKQ1FtPdJoTp2QLzKvwnGh3T1Lj7lH8QFElqJtD6jZUwmwcm7oFDDUHg37uTPPYGHvzxu2b1OeWMqliMdYZV7vvE5178401tBSPg/s320/Your%20paragraph%20text.png)](https://cardingzone007.blogspot.com/2023/01/carding-complete-guideline.html)
 
 Course Topic:
 
